@@ -1,0 +1,2 @@
+# BlueArchive-GameDevelopmentDepartment-HeavenlyVoice
+蔚蓝档案-游戏开发部の天籁之音
